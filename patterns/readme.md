@@ -1,0 +1,1 @@
+Trick to create patterns :
